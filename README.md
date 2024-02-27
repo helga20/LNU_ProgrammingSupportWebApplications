@@ -1,4 +1,5 @@
 # LNU_ProgrammingSupportWebApplications
+t.me/+4dRv6i-idGQ0ODAy
 - Вовк Олександр Володимирович - лекції
 - Василишин Богдан Богданович - практичні
 
